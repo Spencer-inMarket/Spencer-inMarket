@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Spencer-inMarket
-- EVP of Acctivation Product @ InMarket
+- EVP of Activation Products @ InMarket
 - Joined in 2010
 - Spencer@InMarket.com
 - Spencer J on Slack
